@@ -1,0 +1,1 @@
+ini dibaca ya gesss
